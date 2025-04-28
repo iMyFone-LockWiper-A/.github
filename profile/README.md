@@ -9,6 +9,6 @@ iMyFone LockWiper is an app that lets you get rid of the lock that you have set 
 
 
 
-## [🚀💹🎉iMyFone LockWiper For PC](https://tinyurl.com/5n8xttf6)
+## [🚀💹🎉iMyFone LockWiper For PC](https://tinyurl.com/ycx9cmnc)
 
-## [🚀💹🎉iMyFone LockWiper For Windows            ](https://tinyurl.com/5n8xttf6)
+## [🚀💹🎉iMyFone LockWiper For Windows            ](https://tinyurl.com/ycx9cmnc)
